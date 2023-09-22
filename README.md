@@ -23,7 +23,7 @@ The Waffle Web is a platform that offers a diverse collection of unblocked games
 
 Have questions or suggestions? We'd love to hear from you!
 
-- Email: [contact@thewaffleweb.com](mailto:contact@thewaffleweb.com)
+- Email: [contact yeetyeet20yeeets@outlook.com](mailto:yeetyeet20yeeets@outlook.com)
 
 ## License
 
