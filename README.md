@@ -15,7 +15,7 @@ The Waffle Web is a platform that offers a diverse collection of unblocked games
 
 ## Getting Started
 
-1. Visit [The Waffle Web](https://www.thewaffleweb.com/) in your web browser.
+1. Visit [The Waffle Web](nothing.com) in your web browser.
 2. Browse our collection of unblocked games.
 3. Click on a game title to start playing.
 
@@ -23,7 +23,7 @@ The Waffle Web is a platform that offers a diverse collection of unblocked games
 
 Have questions or suggestions? We'd love to hear from you!
 
-- Email: [contact yeetyeet20yeeets@outlook.com](mailto:yeetyeet20yeeets@outlook.com)
+- Email: [yeetyeet20yeeets@outlook.com](mailto:yeetyeet20yeeets@outlook.com)
 
 ## License
 
